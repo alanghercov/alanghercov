@@ -1,5 +1,5 @@
 Alan Ghercov Persico Crives
-Estudante de Ciência da Computação
+engenharia de software
 
 📫 Contato e Redes Sociais
 LinkedIn E-mail Currículo
